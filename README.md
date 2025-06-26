@@ -1,4 +1,4 @@
-[# heiliao2025
+# heiliao2025
 黑料网-0626-黑料不打烊入口|Telegram频道传送门|74猫导航主站|74猫传送门|78黑料网|51吃瓜|黑料曝料网|黑料大事记|黑料大爆料|黑料网导航|国产吃瓜|黑料|今日吃瓜在线|881比鸭
 
 《黑料大事记》按时间线梳理娱乐与网红圈重大黑料事件，真实还原爆料全过程，是吃瓜用户了解舆情演变的高效工具。
@@ -63,5 +63,4 @@ Telegram频道传送门：热门 Telegram 频道全搞定！无论是资讯、�
 
 《黑料大事记》按时间轴呈现娱乐与网红圈重大爆料，理清事件脉络，快速了解舆情发展全过程。
 
-<span style="display:none;">[Canonical link](）</span>
-](https://github.com/met20250626/met20250626)
+<span style="display:none;">[Canonical link][(](https://github.com/met20250626/met20250626)）</span> 
